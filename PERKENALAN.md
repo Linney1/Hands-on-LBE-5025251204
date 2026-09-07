@@ -1,4 +1,4 @@
 # Prodi : Teknik Informatika
 ### Nama : Althof Rahmatullah
-### NRP : 5025251204
-tes
+### NRP : 502525537298
+# Prodi : Teknik Informatika
